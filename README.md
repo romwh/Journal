@@ -1,1 +1,1 @@
-# JournalWork In Progress
+# Work In Progress
